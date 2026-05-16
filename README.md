@@ -1,5 +1,5 @@
 ## c+h
-![image](https://64.media.tumblr.com/70955295575f862c38e3202afea19002/91b1a9b92b56f769-5a/s540x810/e02c9745e52ae47b13731a0fe5dfcc0f4d8c85da.gif)
+![image](https://64.media.tumblr.com/86571c4a7619ed472bed03213640b948/6f8aa65bfc253434-b5/s400x600/edf929f981cf8a2427f4ebc04a338f17ce0f788e.gif)
 
 <!--
 **prussiairl/Prussiairl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
